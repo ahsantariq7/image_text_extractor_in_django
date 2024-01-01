@@ -1,1 +1,1 @@
-https://www.instagram.com/reel/CxYTQ6Kt9hX/?utm_source=ig_web_copy_link&igsh=N2ViNmM2MDRjNw==
+<iframe src="https://www.instagram.com/reel/CxYTQ6Kt9hX/embed/" width="400" height="600" frameborder="0" allowfullscreen></iframe>
